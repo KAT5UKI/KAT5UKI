@@ -10,3 +10,7 @@
 If ⠀all ⠀you ⠀do ⠀is ⠀look ⠀down ⠀on ⠀people⠀,⠀ you ⠀won't ⠀be ⠀able⠀ to⠀ recognize⠀ your⠀ own⠀ weaknesses
 <p align="center">  
 𝘒atsuk𝘪⠀  𓈒⠀  15 歲⠀  　𓏴⠀  Bakugo fictkin⠀  (ᵕ—ᴗ—)⠀  always w2i⠀  ,⠀  c*h encouraged⠀  ◞⠀  Do NOT cover me thx. 
+  
+<p align="center">
+  
+ ⠀  ⠀   [𝐂](https:hcsegawa.carrd.co)ard⠀  .⠀  [𝐏](https:delusions.prns.cc)rns.cc⠀  .⠀  [𝐒](https://idatephobic.strawpage.com)trpg

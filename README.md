@@ -13,4 +13,4 @@ If ⠀all ⠀you ⠀do ⠀is ⠀look ⠀down ⠀on ⠀people⠀,⠀ you ⠀won't
   
 <p align="center">
   
- ⠀⠀    ⠀ ⠀    [𝐂](https:hcsegawa.carrd.co)ard⠀  .⠀  [𝐏](https:delusions.prns.cc)rns.cc⠀  .⠀  [𝐒](https://idatephobic.straw.page)trpg
+ ⠀⠀    ⠀ ⠀    [𝐂](https:hcsegawa.carrd.co)ard⠀  .⠀  [𝐏](https://pronouns.cc/delusions)rns.cc⠀  .⠀  [𝐒](https://idatephobic.straw.page)trpg

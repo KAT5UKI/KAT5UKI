@@ -11,4 +11,4 @@ If ⠀all ⠀you ⠀do ⠀is ⠀look ⠀down ⠀on ⠀people⠀,⠀ you ⠀won't
   
 <p align="center">
   
- ⠀⠀    ⠀ ⠀   [𝐂](https://kiriyaoi.carrd.co)arrd⠀  .⠀  [𝐏](https://pronouns.cc/)rns.cc⠀  .⠀  [𝑹](https://rentry.co/katssuki)entry
+ ⠀⠀    ⠀ ⠀   [𝐂](https://kiriyaoi.carrd.co)arrd⠀  .⠀  [𝐏](https://pronouns.cc/dynamight)rns.cc⠀  .⠀  [𝑹](https://rentry.co/katssuki)entry

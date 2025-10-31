@@ -7,7 +7,7 @@
 <p align="center">
 If ⠀all ⠀you ⠀do ⠀is ⠀look ⠀down ⠀on ⠀people⠀,⠀ you ⠀won't ⠀be ⠀able⠀ to⠀ recognize⠀ your⠀ own⠀ weaknesses
 <p align="center">  
-. 
+ 
   
 <p align="center">
   
